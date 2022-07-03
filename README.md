@@ -1,1 +1,1 @@
-xin chao
+xin chao tat ca moi nguoi
