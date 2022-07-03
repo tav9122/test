@@ -1,1 +1,1 @@
-xin chao tat ca moi nguoi
+xin chao tat ca moi nguoi, dit con me
